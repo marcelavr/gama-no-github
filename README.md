@@ -1,0 +1,1 @@
+Eu estou gostando bastante do curso. Ainda preciso buscar materiais complementares por conta porque essa é realmente minha primeira experiência nesse mundo de tecnologia, mas tem sido bem estimulante.
